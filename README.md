@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on anything provided I get time to learn the skill
 - 💬 Ask me about Competitive programming, DSA, Web development(You can ask about some sports too XD)
 - 📫 How to reach me: wa.me/+918765519229, https://www.linkedin.com/in/shivam-paliya-352b3282/
-- ⚡ Fun fact: I can sing a bit and have played Table tennis for district, state team and CBSE level too, but thats from past and now I don't know what I am good at :')
+- ⚡ Fun fact: I can smash some balls, afterall I was(still a bit) a Table Tennis player :)
 
